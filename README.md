@@ -1,3 +1,7 @@
+Bsc. in geology. 
+Msc. in paleobiology and paleoenvironments (international master) | petrology
+
+currently working as (Geo-) Data analyst for Pilot Hamburg in Nürnberg.
 
 <!---
 LutraphobicOtter/LutraphobicOtter is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
